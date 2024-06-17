@@ -1,0 +1,6 @@
+- 👋 Hi, my name is Neco
+- 👀 I’m interested in Programing (Discord, Games, Web).
+- 🌱 I’m currently learning much.
+- 💞️ I’m looking to collaborate on nothing rn.
+- 📫 You can reach me under my
+- 😄 Im a Man.
